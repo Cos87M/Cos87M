@@ -7,7 +7,7 @@
 
 - 📄 Check out my CV at [https://flowcv.com/app/resume/content](https://flowcv.com/resume/41kl0hpdsv)
 
-- 📫 How to reach me **mihaiadriancosmin@yahoo.com**
+- 📫 How to reach me **mihaiadriancosmin@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
